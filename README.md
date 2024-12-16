@@ -1,3 +1,2 @@
 - 👋 Hi, I’m Carlos Gutérrez Palmeiro
-- 🌱 I’m currently learning computer engineering
 - 📫 How to reach me https://www.linkedin.com/in/carlos-guti%C3%A9rrez-palmeiro/
